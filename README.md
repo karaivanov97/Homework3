@@ -1,0 +1,1 @@
+strukturi ot danni
